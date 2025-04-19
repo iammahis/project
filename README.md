@@ -9,7 +9,7 @@
 
 - 👨‍💻 All of my projects are available at [resume](resume)
 
-- 📫 How to reach me **mahishas97@gmail.com,mahishasasikala@gn**
+- 📫 How to reach me **mahishas97@gmail.com,mahishasasikala@gmail.com**
 
 - 📄 Know about my experiences [resume](resume)
 
